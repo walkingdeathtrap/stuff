@@ -2,6 +2,6 @@
 
 hey i'm lea andd i'm open to friends
 
-click on my other urls or something for info 
+click on my other links ᵔ ᵕ ᵔ
 
-![_](https://github.com/user-attachments/assets/f76165bd-ab4f-4a29-8779-8c431c7a01f2)
+![𝘵𝘢𝘦𝘯𝘰𝘤𝘩](https://github.com/user-attachments/assets/c7b56bcc-baf6-4274-adac-219356daa964)
