@@ -1,4 +1,4 @@
-# stuff
+# kind of important
 
 hey i'm lea andd i'm open to friends
 
